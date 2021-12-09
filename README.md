@@ -1,2 +1,6 @@
 # CPE232_Guinto
-This is Ashley Earl Guinto's Repository
+Group 3 Repository 
+CAHAMBING, FAITH MARY
+GALON, FAITH MARY
+GUINTO, ASHLEY EARL
+MARIANO, GIANNE CHRISTOFFE
